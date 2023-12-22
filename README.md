@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **https://www.instagram.com/jrozo01/**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
